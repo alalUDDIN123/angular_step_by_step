@@ -76,5 +76,5 @@ Feel free to expand on these brief descriptions by providing more detailed expla
 ## Contact Information
 
 If you encounter any difficulties, please don't hesitate to reach out to me. Our team is here to help you.
-  - Email: alal@gmail.com
-  - Phone:+91 6043784437
+  - Email: alalu75666@gmail.com
+  - Phone:+91 6002565574
